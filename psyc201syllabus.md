@@ -2,6 +2,11 @@
 
 ## Instructor: Patrick Sweeney
 
+## Schedule 
+2018/01/29 - Introduction
+
+2018/02/05 - Group Discussion on *The Individual in a Social World*
+
 ### Readings
 
 **Week 1**
